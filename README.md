@@ -1,4 +1,4 @@
 # Trying-make
 # Nope
-# woahhh
-# aaaa
+# Alexandro Dicxon
+# XI TKJ 1
